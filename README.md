@@ -41,4 +41,4 @@
 
 
 <br>
-⭐️ From [axiftaj](https://github.com/Shishagra-Nigam19)
+⭐️ From [Shishagra Nigam](https://github.com/Shishagra-Nigam19)
